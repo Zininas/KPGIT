@@ -7,4 +7,4 @@
 * Умею писать
 * Умею мыслить.
 
-![/Users/aszinin/Курсовая GIT/img/IMG_1497.JPG](/Users/aszinin/Курсовая GIT/img/IMG_1497.JPG)
+![Foto](https://sun9-40.userapi.com/s/v1/ig1/eAnTPbymWriq4kVkeSWBcfXmQRC7w8sKZJ5Tw7Ly1Z9ghxeOQQuH53y6NreMYm7M1dRRBgc6.jpg?size=1280x1280&quality=96&type=album)
